@@ -4,7 +4,7 @@
 - 💞️Estou procurando colaborar: Com meu estado mental.
 - 📫Como chegar até mim: nathan156h@gmail.com
 - 😄 Pronomes: qualquer um.
-- ⚡ Fato engraçado: 
+- ⚡ Fato engraçado: oi
 
 <!---
 Nat2224/Nat2224 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
